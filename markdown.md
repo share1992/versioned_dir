@@ -6,7 +6,7 @@ So eventually she may:
 1. Impress all her friends
 2. Get a boyfriend
 
-Preferably a nerdy one.
+  Preferably a nerdy one.
 
 3. Thats it.
 
